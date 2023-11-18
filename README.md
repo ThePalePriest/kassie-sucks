@@ -1,2 +1,4 @@
 # kassie-sucks
-it's a fact /j
+![image](https://github.com/themoanerrr/kassie-sucks/assets/68351366/8d0778a2-d327-435e-adad-71ebbf371fe2)
+
+IT'S A FACT !! SHE BRINGS OUT THE ALPHA IN ME LMAO !!!! BABYIM PREYINON YOUTONIIIGTH HUNTYYU DOWNEATYO YALIIVE HSJSTLIKE ANIMASMLS ANIMASLLIEK ANIMALS MALS
